@@ -1,2 +1,0 @@
-# reduan
-My Design 
